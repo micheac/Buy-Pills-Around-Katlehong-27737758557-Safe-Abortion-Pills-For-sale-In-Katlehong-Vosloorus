@@ -1,0 +1,2 @@
+# Buy-Pills-Around-Katlehong-27737758557-Safe-Abortion-Pills-For-sale-In-Katlehong-Vosloorus
+Abortion Clinic offers ultimate Services in abortion with an experience of 29 years. Our abortion centers are equipped with primary facilities hence creating a private environment with privacy, efficiency and discretion. You will be the only patient in the clinic. Our staff includes a gynecologist, registered nurse, and a counselor at your care 
